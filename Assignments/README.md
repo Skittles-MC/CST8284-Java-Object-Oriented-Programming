@@ -1,0 +1,1 @@
+All assignments from course
